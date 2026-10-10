@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LALA970303HMCRRL02
+LALA970303HMCRRL02
